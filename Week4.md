@@ -1,0 +1,20 @@
+
+1.) Livestreaming
+
+I find it interesting how now livestreaming on platforms such as Twitch, YouTube, Mixr, Facebook, etc. has become a viable and sometimes even very lucrative way to make money. Almost every device is capable of livestreaming so anyone is able to do it. It seems weird to a lot of people that there are people who sit at their computers at home and play videogames and end up becoming sort of celebrities and making millions from people simply watching them do something as simple as playing a game. However, they don't realize that it is an entire new sort of entertainment industry that has been able to grow due to the increasing popularity of gaming and social media.
+
+2.) VFX/CGI
+
+I watched a lot of videos showing side by side comparisons of how a movie was shot vs how it looked post-production as well as videos showing how VFX artists are able to put people who are dead into movies and make it seem as if they were still alive and on set for the film. VFX has changed film as a whole by allowing for all sorts of elaborate sets and scenes to be generated and changing how characters look (old->young, human->alien, etc.). I would be interested in looking into the future of VFX.
+
+3.) Self-Driving Vehicles
+
+A lot of effort is being put into creating cars that can reliably drives themselves. Many companies have developed self-driving technology such as Tesla, BMW, Audi, Mercedes-Benz, Nissan, Toyota, etc. There are some benefits to having self-driving cars as they are more predictable than human drivers because they are programmed to follow the traffic rules perfectly. However, there is also the problem of self-driving cars having to react to human drivers as well as being able to detect pedestrians. As of right now semi-autonomous cars exist, but a lot of improvements must be made before they are reliable enough to become fully-autonomous and legal to use on the roads.
+
+4.) Technology that improves quality of life
+
+It's really crazy how we have been able to create technology that has eliminated handicaps. People who have lost legs or arms are able to have prosthetics that function almost as well as natural limbs and even people who are blind or color blind are now able to see everything. The extent that this technology has developed is really fascinating as we have been able to take control of the human body and fix imperfections to make it feel as if those impairments don't even exist. I wonder if in the future there will be technology so good that it outperforms the natural human body. Maybe prosthetics that have abnormal strength and movement or glasses that allow us to see more of the light spectrum than the human eye can.
+
+5.) Electronic and Digital Payments
+
+Technology such as applepay, chips in credit cards, cashapp, venmno,crypto currencies, etc. have started to change the way that we interact with the economy. It is much easier and faster to buy things than before and it seems as if we use less physical money and more digital. It's interesting how much easier these things make our lives, but it is also interesting how much they have changed the way the world works. We can just send people money through an app or text, buy things with our phones instead of cash, etc. I'm interested in where this ends up in the future. I saw a video on BBC Click that is about fingerprint debit cards which require your finger to be scanned on the card while you pay. It is similar to applepay or googlepay but it is on your debit card instead of your phone which means it doesn't need to be charged and is much smaller. Maybe we will get to the point where we won't need physical money anymore and everything can just be transactions online or through technologies such as phones and cards. Maybe new technologies will be created that are specifically for payments and look nothing like phones or cards. Maybe people will be scanning their retinas to make payments in the future, who knows.
