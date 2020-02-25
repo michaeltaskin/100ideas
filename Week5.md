@@ -11,5 +11,5 @@ The growth of livestreaming is directly linked to the growth of gaming as almost
 
 4.) MindMap
 
-![MindMap Streaming.png]({{site.baseurl}}/MindMap Streaming.png)
+https://drive.google.com/file/d/1NliPMVycfnzjSSZ6LBpfvfV3-pmTLXKz/view
 
